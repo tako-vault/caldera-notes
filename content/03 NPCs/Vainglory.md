@@ -1,2 +1,0 @@
-
-Charlie (not K.)

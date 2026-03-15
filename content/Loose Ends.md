@@ -1,0 +1,4 @@
+- [ ] Reach an understanding with [[Vainglory]] so that they don't work against the party. Defeating a personification of a sin is not only extremely difficult, but misguided. The repercussions would be immense.
+- [ ] [[Vainglory's Ring]] is able to send one way messages to them. We can use this to our advantage.
+- [ ] [[Nyarlathotep's Cursed Nodules]] need to be dealt with to be able to travel to the lands past the [[Mycelial Enclosure]].
+- [ ] There are portals to other planes within the [[Mycelial Enclosure]], we can use them to power up until we feel ready to deal with [[Nyarlathotep's Cursed Nodules]]
