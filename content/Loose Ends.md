@@ -1,4 +1,19 @@
+- [ ] Where have the missing members of the  [[Shadow Wizard Money Gang]] been taken?
+- [ ] Who sent the [[Shadow Wizard Money Gang]] back in time to the [[06 Epochs and Events/Primordial Era|Primordial Era]]?
+- [ ] There are still more Eyes of Xanathar to be found. 
+- [ ] We can obtain more clearance levels by having the Eyes of Xanathar feed on specific creatures.
+- [ ] Birgir has been taken by Vainglory.
+- [ ] Who was the light-afflicted young woman in [[Al]]'s vision?
+- [ ] Why did [[Kolyarut]] classify [[Al]] as foreign to this timeline?
+- [ ] Who is "The Architect" whose vision Vainglory follows?
+- [ ] Follow up on the investigation on the traitors in Castrum Solis with Augusta when we come back to camp.
 - [ ] Reach an understanding with [[Vainglory]] so that they don't work against the party. Defeating a personification of a sin is not only extremely difficult, but misguided. The repercussions would be immense.
 - [ ] [[Vainglory's Ring]] is able to send one way messages to them. We can use this to our advantage.
 - [ ] [[Nyarlathotep's Cursed Nodules]] need to be dealt with to be able to travel to the lands past the [[Mycelial Enclosure]].
 - [ ] There are portals to other planes within the [[Mycelial Enclosure]], we can use them to power up until we feel ready to deal with [[Nyarlathotep's Cursed Nodules]]
+- [ ] The [[Heart of the Mycelium]] can be found in another dimension that can be accessed through the [Mycelial Gate]
+- [ ] Finish questioning the personification of the Mycelium.
+	-  Elaborate on their plan to remove [[Nyarlathotep's Cursed Nodules]]
+	-  What is our part in it?
+	-  What are the locations of the nodules inside the [[Mycelial Enclosure]]?
+	-  Where are the gates to the planar rifts?
